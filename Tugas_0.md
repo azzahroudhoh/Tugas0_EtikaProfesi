@@ -1,3 +1,0 @@
-Azzah Roudhoh 1857051001
-
-ETIKA PROFESI - Tugas 0
